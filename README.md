@@ -1,1 +1,1 @@
-# Tikto kShare Source by Duc Giang Tran
+# Tiktok Share Source by Duc Giang Tran
